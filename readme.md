@@ -10,7 +10,7 @@
 - [Ojooo Wad](https://wad.ojooo.com/) - Ganha para assistir anúncio. Geralmente de poucos segundos e a remuneração é extremamente baixa, algo como 0,001 USD[2].
 - [TextBroker](https://www.textbroker.com.br/condicao-de-remuneracao-para-autores) - Ganha para escrever textos, publicar artigos[2].
 - [Ubx](https://ubx.ubook.com/) - Ganhe dinheiro gravando audios. A negociação do pagamento é diretamente com o contratante do serviço[2].
-- [Up4ever](https://www.upload-4ever.com/) - Site que paga para você fazer o upload de conteúdos digitais e deixar disponível para download. Fonte de recursos digitais com direitos para uso livre:
+- [Up4ever](https://www.upload-4ever.com/) - Site que paga para você fazer o upload de conteúdos digitais e deixar disponível para download. Fonte de recursos digitais com direitos para uso livre[3]:
   - [PLR mines](https://www.plrmines.com/free-ebooks-plr/)
 
 
