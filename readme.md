@@ -12,7 +12,7 @@
 - [Ubx](https://ubx.ubook.com/) - Ganhe dinheiro gravando audios. A negociação do pagamento é diretamente com o contratante do serviço[2].
 - [Up4ever](https://www.upload-4ever.com/) - Site que paga para você fazer o upload de conteúdos digitais e deixar disponível para download. Fonte de recursos digitais com direitos para uso livre[3]:
   - [PLR mines](https://www.plrmines.com/free-ebooks-plr/)
-
+- [Certificações Google](https://skillshop.withgoogle.com/)  -A ideia aqui é fazer os cursos e certificações gratuitas oferecida pela Google para seus produtos e depois prestar serviços como freelancer usando as certificação como cartão de visitas para conseguir clientes[4].
 
 
 ## Referências
@@ -20,3 +20,4 @@
 1. [👉 Ganhe mais $900.00 apenas baixando imagens grátis. Copiar e colar. Ganhar dinheiro online - Vídeo do canal Ganhando no automático](https://youtu.be/Lbiops7ek3I)
 2. [Esses 3 Sites PAGAM Mais que seu SALÁRIO e Você não sabia l Lucas Roudi - Vídeo do canal Lucas Roudi](https://youtu.be/hxBtTaDInbY)
 3. [Ganhe R$37 Por Cada Arquivo Baixado.Renda Extra Grátis e Fácil(Como Ganhar Dinheiro Na Internet)](https://youtu.be/--xLVM-UdWY)
+4. [Como fazer R$9.000/mês com Certificados Google (Passo a passo) - Vídeo do canal AlbertoKouty](https://youtu.be/N10Ii8zrE7c)
